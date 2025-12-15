@@ -1,0 +1,2 @@
+# sololeveling
+Upgrade myself
